@@ -1,2 +1,1 @@
-# Bot-Discord-M-sic
-Próximamente
+MUY PRONTO
